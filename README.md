@@ -22,7 +22,7 @@ Call us Permian or Konan <br>
 Queer & Taken <3 + mental illness <br>
 native English speaker & fluent French (citizen) ~ i dont interact much with french people
 
-#### ꜝ HEAVY Konan ID (Fictive & Fictionkin) that kind of bleeds onto every headmate .. <sub>*(even the ones that [aren't her]())*</sub>
+#### ꜝ HEAVY Konan ID (Fictive & Fictionkin) that kind of bleeds onto every headmate .. <sub>*(even the ones that [aren't](https://pronouns.cc/@MelonOctoling/Jashinist) [her](https://pronouns.cc/@MelonOctoling/LifetimeGirlDeclaration☆))*</sub>
 
 <sub>We prefer being sent gimmicks / having ata signed / etc over being talked to directly or crowned & stuff like that</sub>
   
