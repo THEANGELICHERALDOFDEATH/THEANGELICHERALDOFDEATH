@@ -14,13 +14,15 @@
 <summary> click here </summary>
 
 ***
-![](https://github.com/user-attachments/assets/42af9bef-a03c-47ea-a618-2d00d19fc2e3)
+![](https://github.com/user-attachments/assets/42af9bef-a03c-47ea-a618-2d00d19fc2e3) 
 </div>
 
 Call us Permian or Konan <br>
 [It / They / She + Masc terms](https://pronouns.cc/@MelonOctoling) & we use We/Us and I/Me interchangeably <br>
 Queer & Taken <3 + mental illness <br>
 native English speaker & fluent French (citizen) ~ i dont interact much with french people
+
+![](https://github.com/user-attachments/assets/8392469c-679d-4d83-9ef0-412cba53ae97) 
 
 #### ꜝ HEAVY Konan ID (Fictive & Fictionkin) that kind of bleeds onto every headmate ...*(even the ones that [aren't](https://pronouns.cc/@MelonOctoling/Jashinist) [her](https://pronouns.cc/@MelonOctoling/LifetimeGirlDeclaration☆))*
 
@@ -41,7 +43,7 @@ We block freely on ponytown but rarely hide. Sometimes we miss other's dni lists
 </details>
 
 ![](https://github.com/user-attachments/assets/5110c51b-1cdf-46cb-b322-96608778bdec) ![](https://64.media.tumblr.com/7d4d6ec9f26678086ad6c5edf985042c/1a6ae2944316a1fa-f9/s75x75_c1/cfcf76845ffaa6cd60f7640292046fc9a3aef198.gifv) ![](https://64.media.tumblr.com/6df488f6a7224e6a243f4120ab4958fc/44e699638b6a68ec-40/s75x75_c1/5c75e5e34611829368d15420326b40f425f15cca.webp) ![](https://64.media.tumblr.com/c2e3734f3fc93c494a0f39bd16ed9932/354ec4073cbbb390-4c/s75x75_c1/95df18903a5c67ae73e9efb4b190f9cf493e532a.gifv) ![](https://64.media.tumblr.com/964e713c7ac8fd719ab602e88a610981/5076a3abfc0f7759-94/s75x75_c1/6c8487a32b966e50c07f8af4f729fb1ae807de32.gifv) ![](https://github.com/user-attachments/assets/9d5bfc84-fd3b-4bf9-8e9b-68fc70a0e4ec) ![](https://github.com/user-attachments/assets/76981a5d-8960-47d9-9a33-0b262cc62113) <br>
-![](https://github.com/user-attachments/assets/d6902419-6ed0-4de9-8c9f-eb4b17e1ab7e) 
+![](https://github.com/user-attachments/assets/d6902419-6ed0-4de9-8c9f-eb4b17e1ab7e) ![](https://github.com/user-attachments/assets/6c4a90ed-316c-4684-ac30-01ce31fa1b33) ![](https://github.com/user-attachments/assets/8465f9d5-4b70-4584-9a56-20c153376993) ![](https://github.com/user-attachments/assets/77278b32-318a-48ea-b567-b460f4df6ddb) ![](https://github.com/user-attachments/assets/99e01434-40d2-40a9-bc89-df10dc8177ae) ![](https://github.com/user-attachments/assets/3dc2de22-af21-4188-a6a7-0ee9636e342f) ![](https://github.com/user-attachments/assets/c9f2263e-bd50-4cd2-a199-5ebeccb99fe8)
 
 
 ***
