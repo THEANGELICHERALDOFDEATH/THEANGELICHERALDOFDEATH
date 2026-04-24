@@ -36,11 +36,13 @@ native English speaker & fluent French (citizen) ~ i dont interact much with fre
 
 Our dni is [here](https://rentry.co/an-angels-orders) BUT it's super long. It basically says that <br>
 Bigots (Racists, Queerphobes, Ableists) , Pro/Darkshippers , Anti-kin / Anti-alterhuman , and Sysmeds & Anti-endos shouldn't interact.
-We block freely on ponytown but rarely hide.
+We block freely on ponytown but rarely hide. Sometimes we miss other's dni lists or boundaries.
 
 </details>
 
-![](https://github.com/user-attachments/assets/5110c51b-1cdf-46cb-b322-96608778bdec) ![](https://64.media.tumblr.com/7d4d6ec9f26678086ad6c5edf985042c/1a6ae2944316a1fa-f9/s75x75_c1/cfcf76845ffaa6cd60f7640292046fc9a3aef198.gifv) ![](https://64.media.tumblr.com/6df488f6a7224e6a243f4120ab4958fc/44e699638b6a68ec-40/s75x75_c1/5c75e5e34611829368d15420326b40f425f15cca.webp) ![](https://64.media.tumblr.com/c2e3734f3fc93c494a0f39bd16ed9932/354ec4073cbbb390-4c/s75x75_c1/95df18903a5c67ae73e9efb4b190f9cf493e532a.gifv) ![](https://64.media.tumblr.com/964e713c7ac8fd719ab602e88a610981/5076a3abfc0f7759-94/s75x75_c1/6c8487a32b966e50c07f8af4f729fb1ae807de32.gifv)
+![](https://github.com/user-attachments/assets/5110c51b-1cdf-46cb-b322-96608778bdec) ![](https://64.media.tumblr.com/7d4d6ec9f26678086ad6c5edf985042c/1a6ae2944316a1fa-f9/s75x75_c1/cfcf76845ffaa6cd60f7640292046fc9a3aef198.gifv) ![](https://64.media.tumblr.com/6df488f6a7224e6a243f4120ab4958fc/44e699638b6a68ec-40/s75x75_c1/5c75e5e34611829368d15420326b40f425f15cca.webp) ![](https://64.media.tumblr.com/c2e3734f3fc93c494a0f39bd16ed9932/354ec4073cbbb390-4c/s75x75_c1/95df18903a5c67ae73e9efb4b190f9cf493e532a.gifv) ![](https://64.media.tumblr.com/964e713c7ac8fd719ab602e88a610981/5076a3abfc0f7759-94/s75x75_c1/6c8487a32b966e50c07f8af4f729fb1ae807de32.gifv) ![](https://github.com/user-attachments/assets/9d5bfc84-fd3b-4bf9-8e9b-68fc70a0e4ec) ![](https://github.com/user-attachments/assets/76981a5d-8960-47d9-9a33-0b262cc62113) <br>
+![](https://github.com/user-attachments/assets/d6902419-6ed0-4de9-8c9f-eb4b17e1ab7e) 
+
 
 ***
 
