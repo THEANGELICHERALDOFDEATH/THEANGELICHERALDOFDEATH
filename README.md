@@ -11,7 +11,7 @@
 
 <details>
   
-<summary> click me </summary>
+<summary> **click here** </summary>
 
 ***
 ![](https://github.com/user-attachments/assets/42af9bef-a03c-47ea-a618-2d00d19fc2e3)
@@ -29,7 +29,7 @@ native English speaker & fluent French (citizen) ~ i dont interact much with fre
 #### [ata](https://melonoctoling.atabook.org) ~ [rentry](https://rentry.co/lady-angel) ~ [strawpage](https://melonoctoling.straw.page/amegakure) ~ [<3mail](https://rentry.co/lord-pain)
 <details>
   
-<summary>Are you lo​oking for a DNI list? </summary>
+<summary>Are you lo​oking for a DNI list? **(click here)** </summary>
 
 <sub>*why did she do that vv*</sub> <br>
 <img src="https://github.com/user-attachments/assets/e81e93e3-1494-4997-9ef7-d398d502a174" width="400" height="197">
