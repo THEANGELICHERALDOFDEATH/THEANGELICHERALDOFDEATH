@@ -49,7 +49,7 @@ We block freely on ponytown but rarely hide. Sometimes we miss other's dni lists
 
 <details>
   
-<summary>More blinkies & stuff (click here) [FLASH WARNING]</summary>
+<summary>More blinkies & stuff (click here)</summary>
 
 ![blinkie host said i'm dumb](https://github.com/user-attachments/assets/77278b32-318a-48ea-b567-b460f4df6ddb) ![konan irl](https://github.com/user-attachments/assets/8465f9d5-4b70-4584-9a56-20c153376993) ![siouxsie](https://github.com/user-attachments/assets/ea59ad74-dd9f-460b-ad8f-ae329d249e39) ![LIKE A FUCKIN SUNN](https://github.com/user-attachments/assets/ab4805b2-dc35-45d0-8b0b-780af5e6e1b8) ![noise listener](https://github.com/user-attachments/assets/8746fae5-fe09-4e95-a65d-5a48a9d06923) 
 
