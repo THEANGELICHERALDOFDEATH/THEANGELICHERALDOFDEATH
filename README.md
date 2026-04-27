@@ -47,13 +47,13 @@ Our dni is [here](https://rentry.co/an-angels-orders) BUT it's super long. It ba
 Bigots (Racists, Queerphobes, Ableists) , Pro/Darkshippers , Anti-kin / Anti-alterhuman , and Sysmeds & Anti-endos shouldn't interact.
 We block freely on ponytown but rarely hide. Sometimes we miss other's dni lists or boundaries.
 
-
+<details>
 
 <summary>Rant for anti-endos to read before sending hate (click here)</summary>
 
 Yes I'm plural & Yes we Dissociate a lot & No I don't claim we have a Dissociative Disorder ,, Yes I label myself with ENDOGENIC terms Yes we are part of the ENDOGENIC community NO that doesn't change the fact we are a SYSTEM who DISSOCIATES A LOT and had a shitty life ,, **No this also doesn't mean I'm a "traumagenic led to believe they're endo🥺🥺🥺", I am what we say we are**. <br>
 No, endos aren't ableist, they are literally neurodivergent (or are practicing their spiritual beliefs). You just don't like that it doesn't align with what you specifically experience. The largest portion of them don't claim to have disordered plurality. I will die and be buried on this hill, even if we delete this bit out of anxiety.<br>
-<sup>^^ Singlets (non-plurals) should not be making opinions on things that don't affect them. if those who aren't anxious shouldn't dictate what is "normal" to cause anxiety, singlets shouldn't have a say in plural origins. I say this as somebody who has literal anxious obsessive spirals and is PLURAL.</sup> <br>
+<sup>Bonus point, singlets (non-plurals) should not be making opinions on things that don't affect them. if those who aren't anxious shouldn't dictate what is "normal" to cause anxiety, singlets shouldn't have a say in plural origins. I say this as somebody who has bad anxious & obsessive spirals.</sup> <br>
 <sub>Asking questions is more productive than fakeclaiming. /gen</sub>
 
 </details>
