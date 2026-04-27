@@ -29,6 +29,8 @@ I consider us pretty unfriendly ,, so if we're friendly with you then I'm probab
 #### ꜝ HEAVY Konan ID (Fictive & Fictionkin) that kind of bleeds onto every headmate ...*(even the ones that [aren't](https://pronouns.cc/@MelonOctoling/Jashinist) [her](https://pronouns.cc/@MelonOctoling/LifetimeGirlDeclaration☆))*
 ##### Doubles/Source twins are really on iffy grounds depending which character & who's fronting. Konan is usually the touchiest subject. Maybe we'll be more open one day.
 
+...
+
 <sub>We prefer being sent gimmicks / having ata signed / etc over being talked to directly or crowned & stuff like that</sub> <br>
 <sup>Also,, we love explaining things. If you're respectful we'll gladly explain things about us.</sup>
   
@@ -39,7 +41,9 @@ I consider us pretty unfriendly ,, so if we're friendly with you then I'm probab
 
 <div align=center>
   
-<img src="https://github.com/user-attachments/assets/e81e93e3-1494-4997-9ef7-d398d502a174" width="400" height="197">
+<img src="https://github.com/user-attachments/assets/d8241266-3e92-4666-ab46-b45e0f8ddfee" width="400" height="200">
+
+
 
 </div>
 
