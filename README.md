@@ -51,7 +51,12 @@ We block freely on ponytown but rarely hide. Sometimes we miss other's dni lists
   
 <summary>More blinkies & stuff (click here)</summary>
 
-![blinkie host said i'm dumb](https://github.com/user-attachments/assets/77278b32-318a-48ea-b567-b460f4df6ddb) ![konan irl](https://github.com/user-attachments/assets/8465f9d5-4b70-4584-9a56-20c153376993) ![siouxsie](https://github.com/user-attachments/assets/ea59ad74-dd9f-460b-ad8f-ae329d249e39) ![LIKE A FUCKIN SUNN](https://github.com/user-attachments/assets/ab4805b2-dc35-45d0-8b0b-780af5e6e1b8) ![noise listener](https://github.com/user-attachments/assets/8746fae5-fe09-4e95-a65d-5a48a9d06923) 
+![mixed origins](https://github.com/user-attachments/assets/a9008c82-66c9-45ec-8576-393b8f877f69) ![quoigenic](https://github.com/user-attachments/assets/01c04df2-a953-467a-ba8c-c478cc2fb16c) ![blinkie host said i'm dumb](https://github.com/user-attachments/assets/77278b32-318a-48ea-b567-b460f4df6ddb) ![konan irl](https://github.com/user-attachments/assets/8465f9d5-4b70-4584-9a56-20c153376993) ![siouxsie](https://github.com/user-attachments/assets/ea59ad74-dd9f-460b-ad8f-ae329d249e39) ![LIKE A FUCKIN SUNN](https://github.com/user-attachments/assets/ab4805b2-dc35-45d0-8b0b-780af5e6e1b8) ![noise listener](https://github.com/user-attachments/assets/8746fae5-fe09-4e95-a65d-5a48a9d06923) ![i love all these people](https://github.com/user-attachments/assets/00301471-f40c-4bfe-8c33-cb58fd2f049c) 
+
+
+
+
+
 
 ![stamp MoDR](https://github.com/user-attachments/assets/4a60f190-19ef-4135-8d1b-f253c813e77f) ![tqbf](https://github.com/user-attachments/assets/7cad040d-df9f-474b-825d-5017d0661f1d) ![white nuxxle driver](https://github.com/user-attachments/assets/74bef0a6-2d4e-4c53-97d0-2169a8feaaf4)
   
