@@ -18,7 +18,7 @@
 </div>
 
 Call us Permian or Konan <br>
-[It / They / She + Masc terms](https://pronouns.cc/@MelonOctoling) & we use We/Us and I/Me interchangeably <br>
+[It / They / She + Masc terms](https://pronouns.cc/@MelonOctoling/1KONAN) & we use We/Us and I/Me interchangeably <br>
 Queer **&&** Taken by my handsome wife tloml <3 !! <br>
 Native English speaker & fluent French (citizen) **~** i dont interact much with french people<br>
 Mentally ill **~** AutismSD **&&** Obsessive + Compulsive **&&** ANXIOUS **&&** Reading + writing issues **&&** I don't know what is considered ok to share about my mental state or not <br>
