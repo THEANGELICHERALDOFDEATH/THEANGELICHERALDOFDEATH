@@ -27,7 +27,6 @@ I consider us pretty unfriendly ,, so if we're friendly with you then I'm probab
 ![It stopped raining](https://github.com/user-attachments/assets/8392469c-679d-4d83-9ef0-412cba53ae97) 
 
 #### ꜝ HEAVY Konan ID (Fictive & Fictionkin) that kind of bleeds onto every headmate ...*(even the ones that [aren't](https://pronouns.cc/@MelonOctoling/Jashinist) [her](https://pronouns.cc/@MelonOctoling/LifetimeGirlDeclaration☆))*
-##### Doubles/Source twins are really on iffy grounds depending which character & who's fronting. Konan is usually the touchiest subject. Maybe we'll be more open one day.
 
 ![pain](https://userimages01.imvu.com/userdata/70958053/badge_88864f8a6c3372e9e80edb5e8258658e.gif) <sup><- creature?</sup>
 
