@@ -47,7 +47,7 @@ I consider us pretty unfriendly ,, so if we're friendly with you then I'm probab
 </div>
 
 Our dni is [here](https://rentry.co/an-angels-orders) BUT it's super long. It basically says that: <br>
-Bigots (Racists, Queerphobes, Ableists) , Pro/Darkshippers , Anti-kin / Anti-alterhuman , and Sysmeds & Anti-endos shouldn't interact.
+Bigots (Racists, Queerphobes, Ableists) , Pro/Darkshippers , Anti-kin / Anti-alterhuman , and Sysmeds & Anti-endos shouldn't interact. <br>
 We block freely on ponytown but rarely hide. If we see you under protree we will block you. Sometimes we miss other's dni lists or boundaries.
 
 <details>
