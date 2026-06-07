@@ -26,7 +26,7 @@ I consider us pretty unfriendly ,, so if we're friendly with you then I'm probab
 
 ![It stopped raining](https://github.com/user-attachments/assets/8392469c-679d-4d83-9ef0-412cba53ae97) 
 
-#### ꜝ HEAVY Konan ID we r literally her ...
+#### ꜝ HEAVY Konan ID we r literally her ... Starting to hide skins that make us uncomfy because holy double discomfort dude ! if ur hidden its prob cuz of that . not really sorry #chronicallyonline
 
 ![pain](https://userimages01.imvu.com/userdata/70958053/badge_88864f8a6c3372e9e80edb5e8258658e.gif) <sup><- creature?</sup>
 
