@@ -18,22 +18,20 @@
 </div>
 
 Call us Permian or Konan <br>
-[It / They / She + Masc terms](https://pronouns.cc/@MelonOctoling/1KONAN) & we use We/Us and I/Me interchangeably <br>
-Queer **&&** Taken by my handsome wife tloml <3 !! <br>
-Native English speaker & fluent French (citizen) **~** i dont interact much with french people<br>
-Mentally ill **~** AutismSD **&&** Obsessive + Compulsive **&&** ANXIOUS **&&** Reading + writing issues **&&** I don't know what else is considered ok to share about my brain <br>
+[It / They + Masc & Fem terms](https://pronouns.cc/@MelonOctoling) & we use We/Us and I/Me interchangeably <br>
+rewriting this<br>
 I consider us pretty unfriendly ,, so if we're friendly with you then I'm probably somehow extremely comfortable near you (epic)
 
 ![It stopped raining](https://github.com/user-attachments/assets/8392469c-679d-4d83-9ef0-412cba53ae97) 
 
-#### ꜝ HEAVY Konan ID we r literally her ... Starting to temp hide skins that make us uncomfy because holy double discomfort dude ! if ur hidden its prob cuz of that . not really sorry #chronicallyonline
+#### ꜝ HEAVY Konan ID we r literally her
 
 ![pain](https://userimages01.imvu.com/userdata/70958053/badge_88864f8a6c3372e9e80edb5e8258658e.gif) <sup><- creature?</sup>
 
 <sub>We prefer being sent gimmicks / having ata signed / etc over being talked to directly or crowned & stuff like that</sub> <br>
 <sup>Also,, we love explaining things. If you're respectful we'll gladly explain things about us.</sup>
   
-#### [ata](https://melonoctoling.atabook.org) ~ [rentry](https://rentry.co/lady-angel) ~ [strawpage](https://melonoctoling.straw.page/amegakure) ~ [<3mail](https://rentry.co/lord-pain)
+#### [ata](https://melonoctoling.atabook.org) ~ rentry [1](https://rentry.co/lady-angel) / [2](https://rentry.co/in-house-pharmacy) ~ [strawpage](https://facethehurt.straw.page) ~ [<3mail](https://rentry.co/lord-pain)
 <details>
   
 <summary>Are you lo​oking for a DNI list? (click here) </summary>
