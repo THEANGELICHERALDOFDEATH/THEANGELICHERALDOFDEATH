@@ -20,11 +20,11 @@
 Call us Permian or Konan <br>
 [It / They + Masc & Fem terms](https://pronouns.cc/@MelonOctoling) & we use We/Us and I/Me interchangeably <br>
 rewriting this<br>
-I consider us pretty unfriendly ,, so if we're friendly with you then I'm probably somehow extremely comfortable near you (epic)
+I consider us pretty unfriendly ,, so if we're friendly with you then I'm probably somehow extremely comfortable near you
 
 ![It stopped raining](https://github.com/user-attachments/assets/8392469c-679d-4d83-9ef0-412cba53ae97) 
 
-#### ꜝ HEAVY Konan ID we r literally her
+#### ꜝ HEAVY Konan ID we are quite literally her
 
 ![pain](https://userimages01.imvu.com/userdata/70958053/badge_88864f8a6c3372e9e80edb5e8258658e.gif) <sup><- creature?</sup>
 
